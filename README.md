@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... crear un juiego NFT
 - 🌱 I’m currently learning ... a programar 
 
-- 💞️ I’m looking to collaborate on ... aglguien con conocimiento para poder ayudamerme
+- 💞️ I’m looking to collaborate on ... alguien con conocimiento 
 - 📫 How to reach me .. 
 mi numero de telefono +57 3002342335
 
